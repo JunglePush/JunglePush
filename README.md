@@ -1,6 +1,6 @@
 ### Hey! 👋
 
-I am HeatSquared, a profession in ROBLOX Lua U.
+                I am HeatSquared, a profession in ROBLOX Lua U.
 
 # About me
 
