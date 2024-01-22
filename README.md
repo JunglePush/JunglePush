@@ -10,6 +10,7 @@ I am currently the Lead Developer for the game Ultimate Build on roblox.
 
 Open to collaborating on interesting and innovative projects.
 
+### This account is fairly old the code here is not high tier stuff, it is OLD.
 
 # Hiring
 
